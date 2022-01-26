@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Josapr
+- 👀 I’m interested in a bunch of things
+- 🌱 I’m currently learning writing, but also Javascript and HTML
+- 💞️ I’m looking to collaborate on anything low-commitment where you'd be willing to teach.
+- 📫 How to reach me: Please don't, I'm mostly trying to reach out to others, not be reached out to. But if you must, my reddit is u/Josaprd20s.
